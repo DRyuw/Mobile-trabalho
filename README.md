@@ -164,3 +164,47 @@ https://www.youtube.com/watch?v=uZD-ySKl91A
 
 **Link para Site Oficial/Redes Sociais:**
 https://www.imdb.com/title/tt0914798/
+
+# Ainda estou aqui
+
+**Sinopse:**
+"Ainda Estou Aqui" se passa no Brasil, em 1970, e é uma adaptação do livro autobiográfico de Marcelo Rubens Paiva sobre sua mãe, Eunice Paiva. A trama acompanha a vida de Eunice, uma mulher casada com um importante político, que vê sua vida mudar completamente após o exílio do marido durante a ditadura militar. A dona de casa se transforma em uma ativista de direitos humanos após o desaparecimento de seu marido, lutando por respostas e justiça.
+
+**Direção:**
+Walter Salles
+
+**Produção:**
+Maria Carlota Bruno, Rodrigo Teixeira, Martine de Clermont-Tonnerre
+
+**Empresa/Estúdio:**
+RT Features, VideoFilmes, Mact Productions, Arte France Cinéma, Conspiração Filmes, Globoplay
+Distribuição: Sony Pictures Releasing
+
+**Gênero:**
+Drama, Biografia, História
+
+**Dados de Lançamento:**
+Brasil: 7 de novembro de 2024
+
+**Elenco Principal:**
+Fernanda Torres como Eunice Paiva (jovem)
+Fernanda Montenegro como Eunice Paiva (idosa)
+Selton Mello como Rubens Paiva
+Guilherme Silveira como Marcelo Rubens Paiva (jovem)
+Antonio Saboia como Marcelo Rubens Paiva (adulto)
+Valentina Herszage como Vera Sílvia Paiva (jovem)
+Maria Manoella como Vera Sílvia Paiva (adulta)
+Luiza Kosovski como Maria Eliana Paiva (jovem)
+Marjorie Estiano como Maria Eliana Paiva (adulta)
+Bárbara Luz como Ana Lúcia Paiva (Nalu) (jovem)
+Gabriela Carneiro da Cunha como Ana Lúcia Paiva (Nalu) (adulta)
+Cora Mora como Maria Beatriz Paiva (jovem)
+Olívia Torres como Maria Beatriz Paiva (adulta)
+
+**Galeria de Imagens:**
+
+**Link para o Trailer:**
+https://www.youtube.com/watch?v=_NzqP0jmk3o
+
+**Link para Site Oficial/Redes Sociais:**
+www.sonypictures.com.br/filmes/ainda-estou-aqui
