@@ -207,4 +207,44 @@ Olívia Torres como Maria Beatriz Paiva (adulta)
 https://www.youtube.com/watch?v=_NzqP0jmk3o
 
 **Link para Site Oficial/Redes Sociais:**
-www.sonypictures.com.br/filmes/ainda-estou-aqui
+https://www.imdb.com/pt/title/tt14961016/
+
+# Et o extraterrestre
+
+**Sinopse:**
+Um garoto solitário chamado Elliott encontra uma criatura alienígena perdida em seu quintal. Mantendo a existência do extraterrestre em segredo, Elliott desenvolve um laço de amizade profundo e mágico com o ser de outro planeta, a quem ele carinhosamente chama de E.T. Enquanto tentam manter E.T. escondido das autoridades e cientistas que o procuram, Elliott e seus irmãos o ajudam a encontrar um meio de voltar para o seu planeta natal. A extraordinária amizade entre o menino e o alienígena emociona e encanta, mostrando a força da conexão e a importância de proteger aqueles que são diferentes.
+
+**Direção:**
+Steven Spielberg
+
+**Produção:**
+Steven Spielberg, Kathleen Kennedy
+
+**Empresa/Estúdio:**
+Amblin Entertainment
+Distribuição: Universal Pictures
+
+**Gênero:**
+Ficção Científica, Aventura, Drama, Família
+
+**Dados de Lançamento:**
+EUA: 11 de junho de 1982
+Brasil: 17 de dezembro de 1982
+
+**Elenco Principal:**
+Henry Thomas como Elliott Taylor
+Drew Barrymore como Gertie Taylor
+Robert MacNaughton como Michael Taylor
+Dee Wallace como Mary Taylor
+Peter Coyote como Keys
+K.C. Martel como Greg
+Sean Frye como Steve
+
+
+**Galeria de Imagens:**
+
+**Link para o Trailer:**
+https://www.youtube.com/watch?v=qYAETtIIClk
+
+**Link para Site Oficial/Redes Sociais:**
+https://www.imdb.com/title/tt0083866/
