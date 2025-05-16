@@ -77,7 +77,7 @@ Anna Galvin como Draka
 **Galeria de Imagens:**
 
 **Link para o Trailer:**
-https://www.youtube.com/watch%3Fv%3DRhFMvMmKmJw
+https://www.youtube.com/watch?v=Dqvz8w-latE
 
 **Link para Site Oficial/Redes Sociais:**
 https://www.universalpictures.com/movies/warcraft
