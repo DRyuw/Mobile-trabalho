@@ -1,30 +1,25 @@
 # Enigma do medo
-Sinopse:
 
+**Sinopse:**
 Em uma estação de pesquisa isolada na Antártida, uma equipe de cientistas americanos se depara com um parasita alienígena enterrado na neve há milhares de anos. Descongelado, o ser extraterrestre tem a capacidade de assimilar e replicar perfeitamente outras formas de vida, semeando paranoia e terror enquanto os membros da equipe lutam para identificar quem ainda é humano e quem já foi substituído pela criatura. A crescente desconfiança e o isolamento implacável transformam a base em um pesadelo claustrofóbico de sobrevivência.
 
-Direção:
-
+**Direção:**
 John Carpenter
 
-Produção:
-
+**Produção:**
 David Foster, Lawrence Turman
 
-Empresa/Estúdio:
-
+**Empresa/Estúdio:**
 Universal Pictures
 
-Gênero:
-
+**Gênero:**
 Terror, Ficção Científica, Suspense
 
-Dados de Lançamento:
-
+**Dados de Lançamento:**
 EUA: 25 de junho de 1982
 Brasil: 13 de agosto de 1982
-Elenco Principal:
 
+**Elenco Principal:**
 Kurt Russell como R.J. MacReady
 A. Wilford Brimley como Dr. Blair
 Donald Moffat como Garry
