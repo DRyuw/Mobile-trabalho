@@ -122,3 +122,45 @@ https://www.youtube.com/watch?v=jTgzJ79KDsg
 
 **Link para Site Oficial/Redes Sociais:**
 https://www.foxmovies.com/movies/assassins-creed
+
+# O menino de pijama listrado
+
+**Sinopse:**
+Durante a Segunda Guerra Mundial, Bruno, um menino alemão de oito anos, se muda com sua família para perto de um campo de concentração. Da janela de seu quarto, ele avista pessoas vestindo o que ele acredita serem "pijamas listrados". Desobedecendo às ordens de seus pais, Bruno explora a área e faz amizade com Shmuel, um garoto judeu da sua idade que vive do outro lado da cerca do campo. A inocente amizade dos dois meninos floresce em meio ao horror do Holocausto, com Bruno gradualmente tentando entender a natureza do local misterioso onde seu novo amigo vive.
+
+**Direção:**
+Mark Herman
+
+**Produção:**
+David Heyman
+
+**Empresa/Estúdio:**
+Heyday Films, BBC Films
+Distribuição: Miramax Films (internacional), Buena Vista International (Reino Unido)
+
+**Gênero:**
+Drama, Guerra
+
+**Dados de Lançamento:**
+Brasil: 26 de dezembro de 2008
+Reino Unido: 12 de setembro de 2008
+
+**Elenco Principal:**
+Vera Farmiga como Elsa Hoess
+David Thewlis como Comandante Ralf Hoess
+Rupert Friend como Tenente Kurt Kotler
+Asa Butterfield como Bruno
+Jack Scanlon como Shmuel
+Amber Beattie como Gretel Hoess
+David Hayman como Pavel
+Richard Johnson como Avô
+Sheila Hancock como Avó
+
+
+**Galeria de Imagens:**
+
+**Link para o Trailer:**
+https://www.youtube.com/watch?v=uZD-ySKl91A
+
+**Link para Site Oficial/Redes Sociais:**
+https://www.imdb.com/title/tt0914798/
