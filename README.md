@@ -34,7 +34,7 @@ Joel Polis como Fuchs
 **Galeria de Imagens:**
 
 **Link para o Trailer:**
-https://www.youtube.com/watch?v=JjDsP5n2kSM
+https://www.youtube.com/watch?v=V0m6YCDzvK0
 
 **Link para Site Oficial/Redes Sociais:**
 https://www.imdb.com/title/tt0084787/
