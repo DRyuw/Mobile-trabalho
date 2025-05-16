@@ -118,7 +118,7 @@ Ariane Labed como Maria
 **Galeria de Imagens:**
 
 **Link para o Trailer:**
-https://www.youtube.com/watch%3Fv%3DRhFMvMmKmJw
+https://www.youtube.com/watch?v=jTgzJ79KDsg
 
 **Link para Site Oficial/Redes Sociais:**
 https://www.foxmovies.com/movies/assassins-creed
