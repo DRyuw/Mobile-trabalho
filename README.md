@@ -30,3 +30,13 @@ Richard Masur como Clark
 Charles Hallahan como Vance Norris
 Peter Maloney como George Bennings
 Joel Polis como Fuchs
+
+**Galeria de Imagens:**
+
+**Link para o Trailer:**
+https://www.youtube.com/watch?v=JjDsP5n2kSM
+
+**Link para Site Oficial/Redes Sociais:**
+https://www.imdb.com/title/tt0084787/
+
+
