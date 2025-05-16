@@ -82,3 +82,43 @@ https://www.youtube.com/watch%3Fv%3DRhFMvMmKmJw
 **Link para Site Oficial/Redes Sociais:**
 https://www.universalpictures.com/movies/warcraft
 
+# Assassin's Creed
+
+**Sinopse:**
+Callum Lynch é um criminoso que está no corredor da morte até ser misteriosamente resgatado pela Abstergo Industries, uma subsidiária moderna dos Templários. Através de uma tecnologia revolucionária chamada Animus, Callum é forçado a reviver as memórias de seu ancestral Aguilar de Nerha, um membro da Irmandade dos Assassinos durante a Inquisição Espanhola no século XV. A Abstergo busca localizar o Fruto do Éden, um artefato antigo com o poder de controlar o livre arbítrio, e Callum, com as habilidades e conhecimentos de Aguilar, torna-se a chave para essa busca. Enquanto revive as memórias de seu ancestral, Callum começa a experimentar as habilidades e a filosofia dos Assassinos, questionando seus próprios captores e o verdadeiro propósito da Abstergo.
+
+**Direção:**
+Justin Kurzel
+
+**Produção:**
+Frank Marshall, Arnon Milchan, Jean-Julien Baronnet, Conor McCaughan, Michael Fassbender
+
+**Empresa/Estúdio:**
+New Regency, Ubisoft Motion Pictures, DMC Films, Kennedy/Marshall Company, RatPac-Dune Entertainment
+Distribuição: 20th Century Fox
+
+**Gênero:**
+Ação, Aventura, Ficção Científica
+
+**Dados de Lançamento:**
+Brasil: 5 de janeiro de 2017
+EUA: 21 de dezembro de 2016
+
+**Elenco Principal:**
+Michael Fassbender como Callum Lynch / Aguilar de Nerha
+Marion Cotillard como Sofia Rikkin
+Jeremy Irons como Alan Rikkin
+Brendan Gleeson como Joseph Lynch
+Charlotte Rampling como Ellen Kaye
+Michael K. Williams como Moussa
+Denis Ménochet como Chefe de Segurança
+Ariane Labed como Maria
+
+
+**Galeria de Imagens:**
+
+**Link para o Trailer:**
+https://www.youtube.com/watch%3Fv%3DRhFMvMmKmJw
+
+**Link para Site Oficial/Redes Sociais:**
+https://www.foxmovies.com/movies/assassins-creed
